@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Tandriana.github.io/rsschool-cv/cv
